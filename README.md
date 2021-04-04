@@ -1,4 +1,4 @@
-### Hi there, I'm Nikil - aka [ShAdOwCoDeX]
+# Hi there, I'm Nikil - aka [ShAdOwCoDeX]
 
 
 ## I'm a coder and a gamer
